@@ -1,5 +1,5 @@
-Earl Joseph L. Limo
-BSIT-2C
+# Earl Joseph L. Limo
+# BSIT-2C
 Just someone who wants to live life peacefully
 
 Hobbies: 
